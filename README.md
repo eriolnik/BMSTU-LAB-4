@@ -1,1 +1,0 @@
-# BMSTU-LAB-4
